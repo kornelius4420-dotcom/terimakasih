@@ -1,0 +1,2 @@
+# terimakasih
+terimkasih wak
